@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @anasamrgalal
-- 👀 I’m interested in technologies
-- 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on designing professionally
-- 📫 How to reach me on COMING SOON
-
-
+I am an Egyptian graphic and UX designer skilled in branding, mobile design, and UX research. I am available for professional collaborations and showcase my work on my social media accounts.
